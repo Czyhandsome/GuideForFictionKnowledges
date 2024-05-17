@@ -1,0 +1,2 @@
+Xiao Li has 13 Pythons, and Xiao Mei has 24 pantalons.
+One day Xiao Li rent 12 Pythons to Xiao Mei at an intest of 10% a month. Xiao Mei failed to pay back the dept, so he has to give Xiao Li 12 pantalons and 12 bloods, by which Xiao Li used chemistry potions to create a magical student.
